@@ -4,7 +4,7 @@
 
 ### The Developer and Creative Designer
 
-![Profile Picture](URL_TO_YOUR_PROFILE_PICTURE)
+![Profile Picture](![20240325_133743](https://github.com/user-attachments/assets/99b3dbb9-c32c-4a99-8efe-8d1cb021f88f))
 
 ---
 
