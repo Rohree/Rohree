@@ -4,7 +4,8 @@
 
 ### The Developer and Creative Designer
 
-![Profile Picture](![20240325_133743](https://github.com/user-attachments/assets/99b3dbb9-c32c-4a99-8efe-8d1cb021f88f))
+![Profile Picture](![20240325_133743](https://github.com/user-attachments/assets/618e12d1-86e0-4dfe-8099-2de681561daf)
+
 
 ---
 
