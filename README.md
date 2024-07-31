@@ -1,11 +1,10 @@
-![about-us](https://github.com/user-attachments/assets/156b7b2f-a846-4991-b6ea-a942577c7ba8)## Hi there 👋
+
 
 ## Hi there, I'm Rorisanng Petja 👋
 
 ### The Developer and Creative Designer
 
-![Profile Picture]![Uploading about-us.svg…]()
-
+![about-us](https://github.com/user-attachments/assets/156b7b2f-a846-4991-b6ea-a942577c7ba8)
 
 
 ---
